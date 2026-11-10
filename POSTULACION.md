@@ -1,4 +1,6 @@
-# Solicitud preparada, aún no presentada
+# Solicitud presentada: pendiente de revisión
+
+Solicitud presentada el 10 de noviembre de 2026. Captura facilitada por el solicitante: Your application / pending / Under review. No hay asignación ni pago confirmados. No duplicar la solicitud.
 
 Convocatoria: Traducción de Inglés a Español | Zcash Shielded News
 
